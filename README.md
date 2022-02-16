@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @saygin1bey
+- 👀 I’m interested in Software
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on everybody
+- 📫 How to reach me ig:saygin.bey or mail:destek@truva.dev
